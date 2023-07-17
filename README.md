@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @TTSHAR
-- 👀 I’m interested in Game developing...
+- 👀 I’m interested in developing, UI/UX design and games...
 - 🌱 I’m currently learning everything related with the webspace
 - 💞️ I’m a freelancer developer, I'm a enthusiast of everything related to the PC and technology.
 
